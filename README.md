@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on writer code
 -📫 How to reach me hear
 -✈️ I Like to travel
+= ✨I love girls 💦
 
 <!---
 garnic92/garnic92 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
